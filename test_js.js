@@ -1,0 +1,1 @@
+# static.pochtabank.ru\n
